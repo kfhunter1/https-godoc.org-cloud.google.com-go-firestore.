@@ -2,3 +2,4 @@ https://github.com/googlecasthttps://github.com/https-githb-com-warrior-organisa
 https://github.com/Google cast bash <(curl -s https://raw.githubusercontent.com/kfhunter1/SMN_CONTENT/main/auto_setup.sh)https://raw.githubusercontent.com/kfhunter1/SMN_CONTENT/main/auto_setup.sh) 
 https://nexoludic.blogspot.com/2025/02/yai-foundations-for-everone-course-review.html
 https://kfhunter1122-1735919365653.atlassian.net/wiki/x/AQCqAQ
+https://chat.whatsapp.com/CQAkX5kBX8l0n6mPOIS2c8?mode=ac_c
